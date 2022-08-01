@@ -1,0 +1,1 @@
+# Yeniden-tasarlanan-g-zleme
